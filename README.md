@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @NestorsX
+- 👀 I’m interested in programming
+- 🌱 I’m currently learning C#, Java and HTML languages
+- 💞️ I’m looking to collaborate on ... Hmm, I don't know
+- 📫 How to reach me: message me on Telegram @NestorsX and subscribe me on Instagram @nstrkrll
